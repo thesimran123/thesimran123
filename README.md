@@ -1,0 +1,2 @@
+Hi everyone, let me introduce myself to you... I am a student at Guru Nanak Dev University who is always willing to learn more. I love to read as much as I love to write. I am also looking forward to have a great career ahead in the line of software development and coding. Sometimes, I dance as well. And quite a spontaneous decision-maker must I add. Now you might be thinking how random my 'about' section of the profile is, well, that's just me.
+
